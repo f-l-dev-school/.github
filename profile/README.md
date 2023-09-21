@@ -1,1 +1,1 @@
-# Welcome to the f-l.dev - School Organization 👋
+# Welcome to the f-l.dev / school 👋
